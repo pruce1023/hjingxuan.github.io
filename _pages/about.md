@@ -17,10 +17,14 @@ I’ve always been driven by a mysterious force to understand the world from div
 
 I consider myself an ordinary student, but I love engaging in activities that are fun, helpful to others, or intellectually stimulating. Overall, I’m very happy with how things are going.
 
+Glad to meet you—feel free to explore my world.
+
 - WeChat: Primavera_FL
 - Twitter: [Apatheia609](https://x.com/Apatheia609)
 - LinkedIn: [Jingxuan H](https://www.linkedin.com/in/jingxuan-h-65ba17263/)
-Glad to meet you—feel free to explore my world.
+
+  
+
 
 
 
